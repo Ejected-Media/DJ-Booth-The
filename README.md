@@ -20,6 +20,8 @@ https://dj-booth-the.launchcart.store/shop
 
 .
 
+Click on the link to buy these products. 
+
 #### Product Line
 
  _ Bubble-free Sticker - $3.00  
